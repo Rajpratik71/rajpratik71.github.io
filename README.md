@@ -15,3 +15,26 @@ http://www.abouttheseotoolstutorial.blogspot.com/
 
 http://www.androidtutorialabout.blogspot.com/
 
+       	 
+       	        				 Social Links
+
+
+https://rajpratik71.tumblr.com (Tumblr)
+
+https://linkedin.com/in/rajpratik71 (LinkedIn)
+
+https://youtube.com/channel/UCCWZJZup9BLL1Mt0SnIQKUA/ (YouTube channel)
+
+https://instagram.com/allTutorialspot (Instagram)
+
+https://twitter.com/Rajpratik71 (Twitter)
+
+https://twitter.com/rajpratik711 (Twitter)
+
+https://instagram.com/rajpratik71 (Instagram)
+
+https://pinterest.com/rajpratik71 (Pinterest)
+
+
+							Description
+												
