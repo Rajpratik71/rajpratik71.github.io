@@ -7,6 +7,8 @@ Repo for Pratik raj i.e. Rajpratik71 github hosted website cum Portfolio profile
 
               		        		 Websites
 
+http://www.rajpratik71.me
+
 http://www.savegreenerearth.blogspot.com/
 
 http://www.onlinerecepieworld.blogspot.com/
@@ -28,8 +30,6 @@ https://youtube.com/channel/UCCWZJZup9BLL1Mt0SnIQKUA/ (YouTube channel)
 https://instagram.com/allTutorialspot (Instagram)
 
 https://twitter.com/Rajpratik71 (Twitter)
-
-https://twitter.com/rajpratik711 (Twitter)
 
 https://instagram.com/rajpratik71 (Instagram)
 
